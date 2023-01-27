@@ -1,1 +1,1 @@
-Hey! This is Harsh Pratap Singh, an Open Source enthusiast and a Wannamble Digital Nomad :) 
+Hey! This is Harsh Pratap Singh, an Open Source enthusiast and a Wannabe Digital Nomad :) 
